@@ -3,7 +3,7 @@
 ## 1. Introduction  
 Hip hop is more than just a genre of music. It is a cultural movement that began in the Bronx, New York City in the early 1970s. It encompasses four main elements:  
 
-* **MCing (Rapping)**
+* **MCing (Rapping)** 
 * **DJing (Turntablism)**
 * **Breakdancing (B-boying)**
 * **Graffiti Art**
