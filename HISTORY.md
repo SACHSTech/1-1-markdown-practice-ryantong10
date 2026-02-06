@@ -68,7 +68,7 @@ The **Golden Age** is often described as the most creative and influential perio
 
 ![U.S. Map](https://i.imgur.com/aLT8i1B.png)
 
-Region   | Key Artists            | Notable Albums
+Region   | Key Artists            | Notable Albums 
 --- | --- | ---
 East Coast | Nas, Biggie, Wu-Tang Clan | Illmatic, Ready to Die, 36 Chambers  
 West Coast | Tupac, N.W.A., Ice Cube | All Eyez on Me, Straight Outta Compton  
