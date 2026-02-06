@@ -10,7 +10,7 @@ Hip hop is more than just a genre of music. It is a cultural movement that began
 
 Together, these four pillars shaped a global cultural force. Today, hip hop is one of the most influential musical genres worldwide, though many argue that its commercial evolution has diluted some of its original authenticity.  
 
-## 2. The Birth of Hip Hop (1970s)  
+## 2. The Birth of Hip Hop (1970s)   
 
 ![DJ Kool Herc](https://i.imgur.com/weXCosl.jpg)
 
