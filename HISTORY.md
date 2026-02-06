@@ -64,7 +64,7 @@ The **Golden Age** is often described as the most creative and influential perio
 * Use of drum machines like the Roland TR-808  
 * Layering multiple samples into dense sound collages  
 
-## 6. Regional Diversity in the Golden Age  
+## 6. Regional Diversity in the Golden Age   
 
 ![U.S. Map](https://i.imgur.com/aLT8i1B.png)
 
