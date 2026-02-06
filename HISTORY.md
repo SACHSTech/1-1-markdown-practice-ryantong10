@@ -54,7 +54,7 @@ The **Golden Age** is often described as the most creative and influential perio
 
 ## 5. Elements of Style  
 
-### 5.1 Lyrical Themes  
+### 5.1 Lyrical Themes   
 * Social commentary (racism, poverty, politics)  
 * Braggadocio and wordplay  
 * Storytelling and narratives  
