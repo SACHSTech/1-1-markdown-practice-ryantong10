@@ -36,7 +36,7 @@ As hip hop gained traction, artists began recording tracks commercially.
 
 ## 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
-![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg)
+![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg) 
 
 >“I never sleep, ’cause sleep is the cousin of death.” – Nas, N.Y. State of Mind
 
