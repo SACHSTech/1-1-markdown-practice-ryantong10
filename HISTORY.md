@@ -32,7 +32,7 @@ This extended drum section became the foundation for MCs to hype up the crowd.
 As hip hop gained traction, artists began recording tracks commercially.  
 * _"Rapper’s Delight"_ by the [Sugarhill Gang](https://youtu.be/mcCK99wHrk0)   (1979) is widely recognized as the first recorded rap single to reach mainstream audiences. 
 * [Run-DMC](https://youtu.be/l-O5IHVhWj0) fused rock and rap, creating crossover hits.
-* [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences. 
+* [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences.  
 
 ## 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
